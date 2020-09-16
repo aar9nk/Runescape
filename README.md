@@ -1,4 +1,4 @@
-# README
+# Runescape Gold
 
 https://aaron-runescape.netlify.app
 
